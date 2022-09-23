@@ -1,0 +1,5 @@
+- 👋 Ahoy, me chamo Aydeline
+- 👀 Estou interessado no uso dessa plataforma
+- 🌱 Atualmente estou aprendendo a usar essa plataforma
+- 💞 Ainda não procuro qualquer tipo de parceria
+- 📫 Poderá me contatar no fb Ayden Alaliba
